@@ -1,3 +1,5 @@
+### Guidelines for playing bluegrass at crypto events
+
 *When we play together on stage in front of an audience, we enter into a sacred series of agreements with one another: to take care of each other, to take care of the audience, to take care of the groove, and to take care of the piece we're playing.*
 
 Put another way, my goals are, roughly in order of ascending importance:  
